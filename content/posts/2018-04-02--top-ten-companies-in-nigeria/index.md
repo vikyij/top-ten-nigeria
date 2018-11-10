@@ -1,6 +1,7 @@
 ---
 title: Top Ten companies to work for in Nigeria
 subTitle: This list ranks companies in Nigeria based on job satisfaction, employee happiness, career growth prospects, work-life balance and other relevant metrics as voted for by employees and career professionals.
+category: top-ten
 cover: dangote.jpg
 ---
 
