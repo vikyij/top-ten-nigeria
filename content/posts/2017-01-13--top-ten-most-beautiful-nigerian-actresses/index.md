@@ -20,7 +20,7 @@ Shirley Igwe is an upcoming actress born on April 1.She's so pretty and she gets
 #### 8- Stephenie Okereke
 
 Stephanie Okereke was born in Ngor Okpala,Imo State. She is the sixth child of Mary and Chima Okereke's eight children. She completed her primary & secondary education inDelta State.She studied at the University of Calabar, in Cross River State, where she graduated with a degree in English and Literary Studies. And she's number eight on our list.
-![Stephenie Okereke](steph-okereke.jpg.jpg)
+![Stephenie Okereke](steph-okereke.jpg)
 
 #### 7- Ini Edo
 
