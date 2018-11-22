@@ -38,7 +38,7 @@ The fact that it is located in owerri(the center of hotels),and the school does 
 Nnamdi Azikiwe University, Awka is a Federal university in Nigeria. Its main campus is located in the southeastern part of Nigeria in Anambra State's capital, Awka, and a second campus is at Nnewi. It is one of twenty-five federal universities which are overseen and accredited by the National Universities Commission.
 We can't list universities with girls that 'form' without adding unizik.
 The time I went to see a friend there,my mouth was agape with the number of pot-bellied sugar daddy's.These girls are living 'large',with some of them having parents struggling in the village to cater for them.
-![Nnandi-Azikiwe-University](Nnandi-Azikiwe-University2.JPG)
+![Nnandi-Azikiwe-University](Nnandi-Azikiwe-University2.jpg)
 
 #### 4- Covenant University
 Covenant University is located in Ota, Ogun State in Nigeria. It is a Private Christian University.Covenant University was opened on October 21,2002.In January 2015, it was ranked as the best university in Nigeria according to Webometrics.
